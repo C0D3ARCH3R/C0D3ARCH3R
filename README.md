@@ -4,5 +4,5 @@
 https://dsc.gg/anchor
 https://anchorclient.com/
 
-Discord > CodeArcher#3250
+Discord > Code#3250
 MC IGN > CodeArcher
