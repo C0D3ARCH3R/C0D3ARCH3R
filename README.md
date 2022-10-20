@@ -1,5 +1,5 @@
 🔴🟢🟡    dumbass.exe     ⎯⠀❐⠀⤬
- - 14yo dev, professional Gamer
+ - 15yo dev, professional Gamer
  - Developer at Anchor Client
 https://dsc.gg/anchor
 https://anchorclient.com/
